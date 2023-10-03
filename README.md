@@ -5,7 +5,7 @@
 Dream it. Believe it. Achieve it
 
 ## Please find my Latest Resume here :
-[Akshaya_Mahesh_Resume-4.pdf](https://github.com/AkshayaMahesh/AkshayaMahesh/files/11401016/Akshaya_Mahesh_Resume-4.pdf)
+
 
 
 <!---
